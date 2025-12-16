@@ -8,3 +8,4 @@ Day 4: Made a Weather App. logging from future
 Day 5: Consistency matters more than Frequency.
 Day 6: Why learning programming basics is still worth it.
 Day 7: Quit Social Media. 
+Day 8: capcut kick me out so had to upload some bullshit. 
