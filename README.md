@@ -10,3 +10,6 @@ Day 6: Why learning programming basics is still worth it.
 Day 7: Quit Social Media. 
 Day 8: capcut kick me out so had to upload some bullshit. 
 day 9: UseState in react, the video which i couldnt upload yesterday.
+
+Jan 19 2026:
+Made account on LinkedIn,and Posted for the first time.
